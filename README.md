@@ -1,2 +1,2 @@
-## Welcome to my portfolio!
+## Welcome to my portfolio! Click below to see my portfolio website :)
 # [www.lina-aneesa.me](http://www.lina-aneesa.me)
